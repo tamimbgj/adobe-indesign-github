@@ -1,7 +1,7 @@
 # 📚 **crack Adobe InDesign v20** | **Adobe InDesign 2025** ✍️🖥️
 
 <div align='center'>
-<img src="https://fixthephoto.com/blog/UserFiles/indesign-editor-interface.jpg"/>
+<img src="https://fixthephoto.com/blog/UserFiles/indesign-editor-interface.jpg" alt="Adobe InDesign 2025 Free Full Version сrack, Adobe InDesign Keygen, Adobe InDesign Activation Key"/>
 </div>
 
 ## 📥 Download
